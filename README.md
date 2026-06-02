@@ -1,3 +1,4 @@
        ♡     ㅤ ⎯fl⍺             ִદི།ྀᰫ
 
-i know you're reading this haha you're from pony town arent you hahaha no more.
+*insert basic DNI criterias* : 🐰 !!
+C+H+K freely , offtab sometimes (BUSY)
