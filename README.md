@@ -1,4 +1,3 @@
        ♡     ㅤ ⎯fl⍺             ִદི།ྀᰫ
 
-*insert basic DNI criterias* : 🐰 !!
-C+H+K freely , offtab sometimes (BUSY)
+ nothing here /silly , go back !!
